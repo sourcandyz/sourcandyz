@@ -15,6 +15,8 @@ Minors are allowed to talk to me, but please don't friend me.
 
 I will hide/block you if your being annoying.
 
+Don't expect me to respond/interact. I have severe anxiety.
+
 ---
 
 Favorite Youtubers:
