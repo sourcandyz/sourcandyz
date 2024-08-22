@@ -3,11 +3,13 @@ Hello! Ny name is Raz! I'm 20yr old. I'm chill.
 
 I frequently play Ponytown, and i like to scroll on tumblr.
 
-[Check out my Strawpage!][
+[Check out my Strawpage!](https://everythingisfine.straw.page/)
+
 ---
 
 Ponytown:
-I am typically off tab, either looking through tumblr.
+
+I am typically off tab, either looking through tumblr, watching youtube.
 
 Minors are allowed to talk to me, but please don't friend me.
 
