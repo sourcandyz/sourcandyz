@@ -5,8 +5,6 @@ I frequently play Ponytown, and i like to scroll on tumblr.
 
 [Check out my Strawpage!](https://everythingisfine.straw.page/)
 
-[Biflux](https://lgbtqia.wiki/wiki/Biflux) | [Aplatonic](https://lgbtqia.wiki/wiki/Aplatonic)
-
 ---
 
 Ponytown:
