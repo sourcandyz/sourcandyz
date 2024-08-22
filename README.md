@@ -9,7 +9,7 @@ I frequently play Ponytown, and i like to scroll on tumblr.
 
 Ponytown:
 
-I am typically off tab, either looking through tumblr, watching youtube.
+I am typically off tab, either looking through tumblr, watching youtube, or other things.
 
 Minors are allowed to talk to me, but please don't friend me.
 
