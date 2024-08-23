@@ -11,7 +11,7 @@ Ponytown:
 
 I am typically off tab, either looking through tumblr, watching youtube, listening to music, ect.
 
-I will check in once in a while to see if i disconnected.
+^ However, i will check in every now and again to see if i disconnected.
 
 Minors are allowed to talk to me, but please don't friend me.
 
