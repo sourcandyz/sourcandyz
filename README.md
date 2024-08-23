@@ -17,6 +17,8 @@ I will hide/block you if your being annoying.
 
 Don't expect me to respond/interact. I have severe anxiety.
 
+I do not stay in one place.
+
 ---
 
 Favorite Youtubers:
